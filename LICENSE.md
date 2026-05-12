@@ -1,4 +1,4 @@
-# 
+# new Vegas Pro for PC | Vegas Pro for Windows Automation | keyframe-animation + 4K-export offers the most advanced Vegas Pro for PC | Vegas Pro for Windows automation, with
 
 
 
